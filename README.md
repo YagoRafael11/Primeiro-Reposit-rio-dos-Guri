@@ -1,1 +1,1 @@
-# Primeiro-Reposit-rio-dos-Guri
+# Primeiro-Repositório-dos-Guri
